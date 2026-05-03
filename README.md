@@ -1,2 +1,1 @@
-uh hi im RonanACNH
-follow me on twitter @RonanACNH
+I don't even know how to code
